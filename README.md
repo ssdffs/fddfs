@@ -1,4 +1,0 @@
-# fddfs
-QWEQWE
-\n
-ARKADAŞLAR 
